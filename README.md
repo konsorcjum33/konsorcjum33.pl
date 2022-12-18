@@ -11,7 +11,7 @@ www.konsorcjum33.pl
    
 ## Poza tym w ramach konsorcjum oferujemy:  
   
-1\. Transparentną ofertę rynkową  
+1. Transparentną ofertę rynkową  
 2. Dostęp do światowej klasy specjalistów  
 3. Wsparcie merytoryczne w codziennych decyzjach  
    
