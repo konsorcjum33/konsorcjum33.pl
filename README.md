@@ -16,3 +16,6 @@ www.konsorcjum33.pl
 3. Wsparcie merytoryczne w codziennych decyzjach  
    
 Firma [Softreck](https://www.linkedin.com/company/softreck/) jest świadoma problemów i braku rozwiązań, oferujemy wsparcie w zakresie AI i modularnego oprogramowania dla realizacji celów na kolejną dekadę [#KONSORCJUM2033](https://www.konsorcjum33.pl) dla dobra polskiej społeczności.
+
+
+https://sodapl.com/o-nas/
